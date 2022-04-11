@@ -1,2 +1,2 @@
 # Corona-epoch
-So begins my journey. May my efforts be endemic
+So begins my journey. May my efforts be endemic.
